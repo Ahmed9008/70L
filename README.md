@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @70L
-- 👀 I’m interested in ... cock
-- 🌱 I’m currently learning ... to nut faster
+- 👀 I’m interested in ... draining & anime
 - 📫 How to reach me ... contact@henkez.com
 
 <!---
