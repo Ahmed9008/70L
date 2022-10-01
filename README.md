@@ -1,5 +1,5 @@
 <div id="header" align="center">
-  <img src="https://i.pinimg.com/originals/05/ae/2c/05ae2c2dcf55029495d5229223033a69.gif">
+  <img src="https://64.media.tumblr.com/04dc681e5c6ae37beef3f2571fd54b59/tumblr_nebuf3JyGd1tq8x5uo1_500.gifv">
 </div>
 
 - 👋 Hi, I’m @70L
